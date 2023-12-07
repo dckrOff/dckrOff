@@ -1,3 +1,3 @@
-### Assalomu Aleykum 👋
+### Assalamu Alaykum 👋
 
 
